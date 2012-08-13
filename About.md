@@ -3,6 +3,7 @@
 Mastery is the combination of specific skills, knowledge, and experiences that would allow other professionals in your field to recognize you as a peer.  The Open Masters program is a framework for an experience that can be used by any group of people to cultivate mastery in whatever field they like, through an intentional process of study and skill building with other peers and mentors.
 
 The Open Masters is a commitment that requires considerable persistence and motivation.   All of the specific details of your Open Masters- and the ultimate title- will be designed by you- together with your peers and mentors- according to your unique needs. In general, it requires:
+
 1. Creating and following individualized plans and routines for self-directed learning.
 2. Completing many different types of learning experiences and projects- including courses, research projects, work-study, or any other type of experience that works for you.
 3. Creating a portfolio of work that demonstrates your strengths, skills, and knowledge.
